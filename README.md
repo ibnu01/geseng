@@ -1,0 +1,2 @@
+# geseng
+kulino rekoso
